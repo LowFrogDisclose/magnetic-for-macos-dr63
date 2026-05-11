@@ -1,4 +1,4 @@
-
+professional Extension for Magnetic for macOS - search-enhancement and CPU-monitoring is the best Magnetic for macOS extension, featuring search-enhancement and CPU-monitoring.
 
 
 
